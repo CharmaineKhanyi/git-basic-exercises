@@ -1,1 +1,1 @@
-have a beautiful heart.
+have a beautiful heart and soul.
